@@ -7,7 +7,7 @@
 
 - 📫Atualmente você me encontra **rodrigo.ssilvafck@gmail.com**
 
-- 📄 Profissional com sólida experiência em cobrança, análise de dados e inteligência de mercado (MIS), atuando há mais de 7 anos em empresas do setor financeiro e de contact center. Atualmente, Analista de Cobrança Pleno da Honda Brasil, participou no desenvolvimento de soluções analíticas para o Consórcio Nacional Honda, como modelos de pontuação de cobrança, relatórios estratégicos e ferramentas de apoio à tomada de decisão. [www.linkedin.com/in/ rrodrigo-souza-silva](www.linkedin.com/in/ rrodrigo-souza-silva)
+- 📄 Profissional com sólida experiência em cobrança, análise de dados e inteligência de mercado (MIS), atuando há mais de 7 anos em empresas do setor financeiro e de contact center. Atualmente, Analista de Cobrança Pleno da Honda Brasil, participou no desenvolvimento de soluções analíticas para o Consórcio Nacional Honda, como modelos de pontuação de cobrança, relatórios estratégicos e ferramentas de apoio à tomada de decisão. [www.linkedin.com/in/ rrodrigo-souza-silva]
 
 - ⚡ Transformo caos em gráficos, e dúvida em dado. Se precisar de uma estratégia, um café e um SELECT bem bolado, é só chamar. **Não sou engraçado**
 
